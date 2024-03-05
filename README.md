@@ -38,3 +38,5 @@ Dúvidas, sugestões, ideias? Estamos aqui para ouvir e crescer juntos. Entre em
 
 A jornada é longa, mas juntos, somos mais fortes. Obrigado por embarcar nessa com a gente, vamos além!
 
+*Versão criada pelo prof Johnatan Oliveira* 
+
